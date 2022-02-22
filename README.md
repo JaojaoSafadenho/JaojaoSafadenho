@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JaojaoSafadenho
+- 👀 I’m interested in study some app developing, biology and being an astrounaut!
+- 🌱 I’m currently learning mobile scripting
+- 💞️ I’m looking to collaborate on connection and entertainment
+- 📫 How to reach me: Email - jaojaosafadenho@gmail.com
